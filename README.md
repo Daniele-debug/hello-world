@@ -1,2 +1,2 @@
 # hello-world
-Learning how to use Github so I can become part of this world. yes I just did that. 
+Learning how to use Github because I want to be part of this world. Yes I just did that. 
