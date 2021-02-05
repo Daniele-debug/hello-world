@@ -1,2 +1,2 @@
 # hello-world
-Learning how to use Github so I can become part of this world. yes I just did that. 
+Learning how to use Github because I want to be part of this world. Yes I just did that. I want to code to better my life but it is so much deeper than that. To explain why I am learning this I need to give a bit of back ground and tell my story. This story will be a epic one. Life is hard and mine has been impossiable hard and some where down line I became depressed hopeless and trapped in learned helplessness. Self learning code is my hail mary. My big play I choice it because it terrified me because math is my enemy like it actually scares me. 
